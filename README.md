@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Error-404-RealityNotFound
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning lua
+- 📫 How to reach me : idk xd
